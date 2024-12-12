@@ -1,5 +1,4 @@
-# Privacy-Policy
-隐私政策
+# 隐私政策 Privacy-Policy
 
 更新日期：2024年12月12日
 生效日期：2024年12月12日
